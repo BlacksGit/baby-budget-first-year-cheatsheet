@@ -39,6 +39,6 @@ Wipe warmers, newborn shoes, walkers, bulk wipes, nursery decor you will not use
 
 ---
 
-The full printable planner has the monthly budget worksheet, 9-month savings tracker, purchase timeline and 25 ways to spend less. Support more guides: [patreon.com/123black](https://patreon.com/123black)
+The full printable planner (https://spectre5.gumroad.com/l/agjlwi, $6) has the monthly budget worksheet, 9-month savings tracker, purchase timeline and 25 ways to spend less. Support more guides: [patreon.com/123black](https://patreon.com/123black)
 
 *Estimates are general and not financial or medical advice.*
